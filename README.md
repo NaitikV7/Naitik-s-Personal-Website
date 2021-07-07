@@ -1,1 +1,1 @@
-# Naitik's-Personal-Website
+# Naitik-Personal-Website
